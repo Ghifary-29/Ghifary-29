@@ -1,5 +1,5 @@
 # 💫 Hello, I'M Ghifary Muhammad Ramadhan
-🔭 I’m currently working on Google<br>👯 I’m looking to collaborate on <br>🤝 I’m looking for help with Friend<br>🌱 I’m currently learning Networking<br>💬 Ask me about Anything<br>⚡ Fun fact like sport
+🔭 I’m currently Studying Informatics in Muhammadiyah Surakarta University<br>👯 I’m looking to collaborate on <br>🤝 I’m looking for help with Friend<br>🌱 I’m currently learning Networking<br>💬 Ask me about Anything<br>⚡ Fun fact like sport
 
 
 ## 🌐 Socials:
